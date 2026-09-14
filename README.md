@@ -1,3 +1,6 @@
+<img width="770" height="162" alt="Screenshot from 2026-09-13 02-15-42" src="https://github.com/user-attachments/assets/dadaf5c1-c6fc-47be-a690-1c959da685d1" />
+<img width="775" height="173" alt="Screenshot from 2026-09-13 02-16-37" src="https://github.com/user-attachments/assets/a875e751-5ac7-41cf-8b1c-e495c376ede7" />
+<img width="1362" height="691" alt="Screenshot from 2026-09-13 02-21-01" src="https://github.com/user-attachments/assets/e911da14-276b-4d23-8351-de8cb264e6d4" />
 ### \\ Author: W_Wachira 
 ### Learning outcomes
 
